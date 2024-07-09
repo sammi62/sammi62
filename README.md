@@ -2,7 +2,8 @@
 - 👀 I’m interested in coding and and making new things
 - 🌱 I’m currently learning software engineering
 - 
-- 📫 How to reach me
+- 📫 Contact me on whatsapp( 03155633198 )
+- and on instagram ( sammi_62 )
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
